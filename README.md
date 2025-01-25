@@ -1,5 +1,5 @@
 
-# HARIOM DUBEY
+# Contact
 
 Ghatkopar, Mumbai | +91 8928178792 | dubeyhariom2020@gmail.com | [Github](https://github.com/hariomdubey03) | [LinkedIn](https://www.linkedin.com/in/hariomdubey)
 
